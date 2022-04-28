@@ -1,0 +1,1 @@
+# minkxhubfull-script
